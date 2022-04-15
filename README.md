@@ -1,0 +1,1 @@
+# kiridelivery_privacy_policy
